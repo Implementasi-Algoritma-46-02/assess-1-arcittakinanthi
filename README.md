@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Arcitta Kinanthi
 
-NIM : 
+NIM : 607062400050
 
 ## Instruksi
 
